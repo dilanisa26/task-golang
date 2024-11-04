@@ -1,2 +1,2 @@
 Nama : Anisa
-Slogan: yokk drakorrr
+Slogan: Do the best and get the bash
